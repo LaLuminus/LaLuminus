@@ -1,5 +1,7 @@
 ## ꒷︶꒷꒥꒷‧₊˚꒷︶꒷₊˚꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚
 
+![image](https://github.com/user-attachments/assets/ecf7557b-5a1a-4a2e-a049-b6d04e88d71f)
+
 ## Helllooo >3<  Welcome to my profile!
 
 ## Main fandoms I'm in:
