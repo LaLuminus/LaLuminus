@@ -1,8 +1,6 @@
 ## ꒷︶꒷꒥꒷‧₊˚꒷︶꒷₊˚꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚
 
-## Helllooo >3<
-
-## Welcome to my profile!
+## Helllooo >3<  Welcome to my profile!
 
 ## Main fandoms I'm in:
 
