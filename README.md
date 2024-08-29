@@ -2,6 +2,10 @@
 
 ## Helllooo >3<
 
+## Welcome to my profile!
+
+## Main fandoms I'm in:
+
 <!--
 **LaLuminus/LaLuminus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
