@@ -44,6 +44,15 @@ My biggest kins are probably Fischl from Genshin Impact and Napstablook from Und
 
 ***DŻAJS***
 
+OH AND ALSO PLEASE CHECK THAT SPOTIFY PLAYLIST TPoH RGB THEMED
+
+https://open.spotify.com/playlist/1WGQC4l4zpw3d2kvtYv7XX
+
+Its not mine but please it needs more recongition please its so good (I've been listening it for 3 days straight now, everything is fine dw)
+
+
+ALSO IM PROB GONNA REMAKE THIS PROFILE SOON CUZ I DONT RLLY LIKE HOW IT TURNED OUT (I can't code as peck help)
+
 ![](https://komarev.com/ghpvc/?username=LaLuminus)
 
 ## ꒷︶꒷꒥꒷‧₊˚꒷︶꒷₊˚꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚
